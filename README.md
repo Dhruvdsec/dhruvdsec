@@ -9,4 +9,4 @@
 - DeFi Attack Lab 💸
 - Custom Audit Templates (Markdown + Checklist) 📄
 
-Let's connect 👉 [LinkedIn](https://www.linkedin.com/in/siddharth-sharma-716311372/) | [X](https://x.com/theRiverweb3)
+Let's connect 👉 | [X](https://x.com/theRiverweb3)
